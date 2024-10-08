@@ -1,2 +1,3 @@
 # Hanup-Kumar-Talasila
-Hanup Kumar Talasila Profile
+tahaku0731@gmail.com | +1 (717)-559-2343 | 
+--------------------------------------------------------------
